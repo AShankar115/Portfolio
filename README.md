@@ -4,7 +4,7 @@
 📅 Date of Birth: March 10, 1995  
 📧 E-mail: ashankar115@gmail.com  
 📞 Ph.No.: +49 176 748 33189  
-🔗 [LinkedIn](https://www.linkedin.com/in/shankar-apoorva/)
+🔗 [LinkedIn Profile](https://www.linkedin.com/in/shankar-apoorva/)
 
 ---
 
