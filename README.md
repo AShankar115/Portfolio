@@ -1,9 +1,9 @@
 # Apoorva Shankar
 
 📍 Berlin, Germany  
-📅 Born: March 10, 1995  
-📧 ashankar115@gmail.com  
-📞 +49 176 748 33189  
+📅 Date of Birth: March 10, 1995  
+📧 E-mail: ashankar115@gmail.com  
+📞 Ph.No.: +49 176 748 33189  
 🔗 [LinkedIn](https://www.linkedin.com/in/shankar-apoorva/)
 
 ---
